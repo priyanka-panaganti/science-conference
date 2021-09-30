@@ -1,3 +1,3 @@
 # science-conference
 
-[CLICK HERE!](https://priyanka-panaganti.github.io/sign-in-page/sign%20up.html)
+[CLICK HERE!](https://priyanka-panaganti.github.io/science-conference/science20%Conference.html)
